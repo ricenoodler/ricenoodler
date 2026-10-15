@@ -27,4 +27,4 @@ I'm also a private pilot, musician, and aviation enthusiast. I enjoy photography
 
 ### 🔗 Connect with me
 
-**[Portfolio](https://jared.delmundo.info)** · **LinkedIn** · **Résumé**
+**[Portfolio](https://jared.delmundo.info)** · **[LinkedIn](https://www.linkedin.com/in/jareddelmundo/)** · **[Résumé]**
